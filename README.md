@@ -1,0 +1,2 @@
+# nortmee
+untuk database sajaaaaaa
